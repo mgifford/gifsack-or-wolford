@@ -24,6 +24,8 @@ url: "https://mgifford.github.io" # the base hostname & protocol for your site
 
 # BASE_PATH : http://mikeandrebecca.ca/4df0179dda01538c9eedcafb8789c0805e4fd0c4
 
+relative_permalinks: false
+
 # on landing page
 # - set the greeting only if you want to display the first green section
 greeting:
