@@ -19,7 +19,10 @@ owner:
   url: https://mgifford.github.io/wolford-or-gifsack/
 first_published: 2018 # if migrating another site, the year of your first publish
 baseurl: "/wolford-or-gifsack/4df0179dda01538c9eedcafb8789c0805e4fd0c4" # the subpath of your site, e.g. /blog
+production_url : http://mgifford.github.io.com/wolford-or-gifsack/4df0179dda01538c9eedcafb8789c0805e4fd0c4
 url: "https://mgifford.github.io" # the base hostname & protocol for your site
+
+# BASE_PATH : http://mikeandrebecca.ca/4df0179dda01538c9eedcafb8789c0805e4fd0c4
 
 # on landing page
 # - set the greeting only if you want to display the first green section
