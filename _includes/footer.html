@@ -1,0 +1,26 @@
+<!-- Footer -->
+<footer id="footer">
+  <ul class="icons">
+    <li><a target="_blank" href="mailto:mike@openconcept.ca" class="icon square-mike"><span class="label">E-mail Mike</span></a></li>
+    <li><a target="_blank" href="mailto:dancingrebecca@gmail.com" class="icon square-rebecca"><span class="label">E-mail Rebecca</span></a></li>
+  </ul>
+  <ul class="copyright">
+    <li>&copy; {%
+    assign thisyear = site.time | date: "%Y" %}{%
+    if site.first_published %}{%
+      capture diff %}
+        {{ site.first_published | minus:thisyear }}{%
+      endcapture %}{%
+      if diff contains '-' %}{{
+        site.first_published }},{%
+      endif %}{%
+    endif %}
+    {{ thisyear }}{%
+    if site.owner.name %}
+      {{ site.owner.name }}{%
+    else %}
+      {{ site.title }}{%
+    endif %}</li>
+    <li><a href="{{ '/credits/' | prepend: site.baseurl }}">Credits</a></li>
+  </ul>
+</footer>
