@@ -6,6 +6,7 @@ excerpt: Ottawa wedding ceremony
 image: Ottawa_tall.jpg
 image_alt: Rebecca & Mike on the Ottawa River
 background-image: Ottawa2.jpg
+layout: page
 ---
 
 # The Wedding Site for Rebecca &amp; Mike's Celebration!
