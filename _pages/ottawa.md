@@ -1,7 +1,7 @@
 ---
 key: 1
 title: Ottawa
-permalink: /ottawa/
+permalink: /4df0179dda01538c9eedcafb8789c0805e4fd0c4/ottawa/
 excerpt: Ottawa wedding ceremony
 image: Ottawa_tall.jpg
 image_alt: Rebecca & Mike on the Ottawa River
