@@ -1,6 +1,6 @@
 # FAQ
 
-- What is a Quaker Wedding?
+- [What is a Quaker Wedding?](#Quaker)
 - What to wear?
 - Can I bring my kids or pet?
 - Do we bring gifts?
