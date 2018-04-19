@@ -1,7 +1,7 @@
 ---
 key: 2
 title: Vanouver Reception
-permalink: /4df0179dda01538c9eedcafb8789c0805e4fd0c4/Vancouver/
+permalink: /f9f742e1f653a74c4cd78d7ea283b5556539b96b/Vancouver/
 excerpt: If you're coming to Vancouver
 image: Vancouver_tall.jpg
 image_alt: Rebecca & Mike in the Mountains
