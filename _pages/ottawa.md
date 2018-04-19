@@ -15,10 +15,9 @@ layout: page
 
 The main event is happening on Saturday evening.
 
-```
-  5:45pm July 28, 2018 (after dinner)
-  [Wabano Centre for Aboriginal Health](http://wabano.com/), [299 Montreal Rd, Vanier, Ontario](https://www.google.com/maps/place/299+Montreal+Rd,+Vanier,+ON+K1L+6B8/@45.4373487,-75.6611751,17z/data=!3m1!4b1!4m5!3m4!1s0x4cce0541d22407df:0xa38d13cfa9c2bc3e!8m2!3d45.4373487!4d-75.6589864)
-```
+**5:45pm July 28, 2018 (after dinner)
+[Wabano Centre for Aboriginal Health](http://wabano.com/), [299 Montreal Rd, Vanier, Ontario](https://www.google.com/maps/place/299+Montreal+Rd,+Vanier,+ON+K1L+6B8/@45.4373487,-75.6611751,17z/data=!3m1!4b1!4m5!3m4!1s0x4cce0541d22407df:0xa38d13cfa9c2bc3e!8m2!3d45.4373487!4d-75.6589864)**
+
 
 The ceremony will begin at 6pm. It will be a Quaker ceremony - don't panic! We will give you lots of info and guidance. Please see What is a Quaker Wedding Ceremony? in the FAQ section. 
 
@@ -34,10 +33,8 @@ The Wabano Centre for Aboriginal Health is an urban health centre that provides 
 
 Given that you are family and/or that you have travelled from afar, we would like to maximise this window of time with you. 
 
-```
-  Pizza & Beer @ 6pm Friday July 27
-  581 MacLaren Street
-```
+**Pizza & Beer @ 6pm Friday July 27
+581 MacLaren Street**
 
 We would love to have you over for dinner on Friday night (July 27). It will be a simple casual affair - pizza and salad in our backyard. We will have beer, wine, and juice no need to bring anything. As it is the night before the big day we will try to make this an early night :)
 
