@@ -3,9 +3,9 @@ key: 4
 title: FAQ
 permalink: /f9f742e1f653a74c4cd78d7ea283b5556539b96b/faq/
 excerpt: Frequently Asked Questions
-image: FAQ.jpg
+image: FAQ2_tall.jpg
 image_alt: Mike & Rebecca with a Rainbow in Scotland
-background-image: FAQ.jpg
+background-image: FAQ2.jpg
 layout: page
 ---
 
