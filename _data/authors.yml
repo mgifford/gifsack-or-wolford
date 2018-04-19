@@ -1,10 +1,15 @@
 # authors
 
-openconcept:
+Mike:
   name: Mike Gifford
   url: https://openconcept.ca
   email: mike@openconcept.ca
 
+# Rebecca doesn't show up. 
+
+Rebecca:
+  name: Rebecca Wolsak
+  email: dancingrebecca@gmail.com
 
 arkadianriver:
   name: Gary Faircloth

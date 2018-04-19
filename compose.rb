@@ -1,8 +1,5 @@
 #!/usr/bin/ruby
 #
-# my first ruby script!
-# (could surely be better, but it gets the job done well enough)
-#
 # Walks through creating a new post rather than reading everything
 # in the "Guide to New Posts" topic and rather than typing the filename
 # and all by hand, like jekyll-compose, but specific to this repo.
