@@ -46,9 +46,12 @@ Possible breakfast.
 
 Possible hike.
 
-### Sunday Lunch
+### Sunday (July 29) afternoon - 12:30-4pm
 
-Picnic in the Park
+Our only regret about having the wedding at Wabano is the lack of outdoors time. So we have decided to put on our wedding outfits on Sunday afternoon and head to a lake. Please join us with your swimsuits, cameras and some food for a potluck picnic in the park! It will be low key - we are not coordinating food. We would love some photos of us in our outfits outside in the sun, if they work out great! If it rains, no problem :) We will bring Tibi and go to a lake you can walk to in about 25 mins (mostly flat). [Parking and lake marked on map here](https://drive.google.com/open?id=19bKJw5R4ZpiY2VlZo6IpHQVXZttV71Nu&usp=sharing).
+
+If folks are keen, there is usually fabulous music and a riverside patio on Sunday afternoons as of 4pm at the Blacksheep Inn in Wakefield, just a bit further north (also on map.)
+
 
 ### FAQ
 
