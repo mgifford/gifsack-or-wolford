@@ -1,8 +1,8 @@
 ---
 key: 2
-title: Vanouver Reception
+title: West Vanouver Reception
 permalink: /f9f742e1f653a74c4cd78d7ea283b5556539b96b/Vancouver/
-excerpt: If you're coming to Vancouver
+excerpt: A beach party at Joost & Jane's Place
 image: Vancouver_tall.jpg
 image_alt: Rebecca & Mike in the Mountains
 background-image: Vancouver2.jpg
