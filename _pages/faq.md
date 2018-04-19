@@ -26,7 +26,7 @@ If you want to make a donation in our name, please consider giving to Inter Pare
 
 ## What is the hashtag?
 
-We're going to use #randmnews as it is close to the website we are using
+We're going to use **#randmnews** as it is close to the website we are using
 
 ## What does RandM.news stand for?
 
