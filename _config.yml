@@ -30,7 +30,7 @@ relative_permalinks: false
 # - set the greeting only if you want to display the first green section
 greeting:
   title: Welcome!  
-  text: We want you to help us celebrate our life together! We will be adding information here to help you join us in either Ottawa, Vancouver or Thailand.
+  text: We want you to help us celebrate our life together! We will be adding information here to help you join us in either Ottawa, Vancouver and/or Thailand.
 
 # - title for your blog's featured posts
 # features-title: Ottawa
