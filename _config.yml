@@ -15,10 +15,16 @@ description: The site for all information related to Mike & Rebecca's 2018 celeb
 owner:
   name: Mike Gifford & Rebecca Wolsak
   email: mike@openconcept.ca
+
   url: http://randm.news/
 first_published: 2018 
 baseurl: "/" # the subpath of your site, e.g. /blog
 passhash: 4df0179dda01538c9eedcafb8789c0805e4fd0c4
+
+
+BASE_PATH : http://randm.news/4df0179dda01538c9eedcafb8789c0805e4fd0c4
+
+relative_permalinks: false
 
 # on landing page
 # - set the greeting only if you want to display the first green section
