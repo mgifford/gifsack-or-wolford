@@ -1,22 +1,33 @@
 # FAQ
 
-## What is a Quaker Wedding?
+- What is a Quaker Wedding?
+- What to wear?
+- Can I bring my kids or pet?
+- Do we bring gifts?
+- What if we want to make a donation?
+- What is the hashtag?
+- What does RandM.news stand for?
 
-## What to wear?
+[create an anchor](#anchors-in-markdown)
+
+
+## [What is a Quaker wedding?](#Quaker)
+
+## [What to wear?](#Clothes)
 
 Clothes.
 
-## Can I bring my kids or pet
+## [Can I bring my kids or pet?](#Pets)
 
-## Do we Bring Gifts
+## Do we bring gifts?
 
 We are not spring chickens looking to build a new home, we have plenty of stuff. No gifts please! 
 
-## What If We Want to Make a Donation?
+## What if we want to make a donation?
 
 If you want to make a donation in our name, please consider giving to Inter Pares, Ecology Ottawa, or the Electronic Frontier Foundation.
 
-## What is the Hashtag?
+## What is the hashtag?
 
 We're going to use #randmnews as it is close to the website we are using
 
