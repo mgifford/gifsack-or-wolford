@@ -8,9 +8,6 @@
 - [What is the hashtag?](#what-is-the-hashtag)
 - [What does RandM.news stand for?](#what-does-randmnews-stand-for)
 
-[create an anchor](#anchors-in-markdown)
-
-
 ## What is a Quaker wedding?
 
 ## What to wear?
