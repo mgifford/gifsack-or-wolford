@@ -33,7 +33,7 @@ The Wabano Centre for Aboriginal Health is an urban health centre that provides 
 Given that you are family and/or that you have travelled from afar, we would like to maximise this window of time with you. 
 
 <p><em>Pizza & Beer @ 6pm Friday July 27 <br />
-581 MacLaren Street</em></p>
+<a href="https://www.google.com/maps/place/581+MacLaren+St,+Ottawa,+ON+K1R+5K8/data=!4m2!3m1!1s0x4cce044d38fca235:0x8485464ac8df5556?sa=X&ved=0ahUKEwip57DJjcXaAhVM8IMKHWeHAnYQ8gEIJjAA">581 MacLaren Street</a></em></p>
 
 We would love to have you over for dinner on Friday night (July 27). It will be a simple casual affair - pizza and salad in our backyard. We will have beer, wine, and juice no need to bring anything. As it is the night before the big day we will try to make this an early night :)
 
