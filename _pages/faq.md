@@ -1,7 +1,7 @@
 # FAQ
 
-- [What is a Quaker Wedding?](#Quaker)
-- What to wear?
+- [What is a Quaker Wedding?](#what-is-a-quaker-wedding)
+- [What to wear?](what-to-wear)
 - Can I bring my kids or pet?
 - Do we bring gifts?
 - What if we want to make a donation?
@@ -11,9 +11,9 @@
 [create an anchor](#anchors-in-markdown)
 
 
-## [What is a Quaker wedding?](#Quaker)
+## [What is a Quaker wedding?]
 
-## [What to wear?](#Clothes)
+## What to wear?
 
 Clothes.
 
