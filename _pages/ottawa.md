@@ -52,27 +52,6 @@ Our only regret about having the wedding at Wabano is the lack of outdoors time.
 
 If folks are keen, there is usually fabulous music and a riverside patio on Sunday afternoons as of 4pm at the Blacksheep Inn in Wakefield, just a bit further north (also on map.)
 
-
-### FAQ
-
-#### What is a Quaker Wedding
-
-#### What to wear
-
-#### Can I bring my kids or pet
-
-#### Gifts
-
-We are not spring chickens looking to build a new home, we have plenty of stuff. No gifts please! If you want to make a donation in our name, please consider giving to Inter Pares or Ecology Ottawa.
-
-#### What is the Hashtag?
-
-We're going to use #randmnews as it is close to the website we are using
-
-#### What does RandM.news stand for?
-
-Rebecca and Mike of course.  Was easier to say than MandR.news and we didn't want it to get long and complicated.
-
 #### Food & Drink
 
 #### Great places to eat in Ottawa
