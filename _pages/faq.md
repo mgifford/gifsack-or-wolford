@@ -1,3 +1,15 @@
+---
+key: 4
+title: FAQ
+permalink: /4df0179dda01538c9eedcafb8789c0805e4fd0c4/ottawa/
+excerpt: Frequently Asked Questions
+image: Ottawa_tall.jpg
+image_alt: Need Another Image Here
+background-image: Ottawa2.jpg
+layout: page
+---
+
+
 # FAQ
 
 - [What is a Quaker Wedding?](#what-is-a-quaker-wedding)
