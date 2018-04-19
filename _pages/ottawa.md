@@ -63,6 +63,16 @@ If folks are keen, there is usually fabulous music and a riverside patio on Sund
 
 #### Gifts
 
+We are not spring chickens looking to build a new home, we have plenty of stuff. No gifts please! If you want to make a donation in our name, please consider giving to Inter Pares or Ecology Ottawa.
+
+#### What is the Hashtag?
+
+We're going to use #randmnews as it is close to the website we are using
+
+#### What does RandM.news stand for?
+
+Rebecca and Mike of course.  Was easier to say than MandR.news and we didn't want it to get long and complicated.
+
 #### Food & Drink
 
 #### Great places to eat in Ottawa
