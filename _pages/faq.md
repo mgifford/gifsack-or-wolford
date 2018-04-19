@@ -1,7 +1,7 @@
 ---
 key: 4
 title: FAQ
-permalink: /4df0179dda01538c9eedcafb8789c0805e4fd0c4/ottawa/
+permalink: /f9f742e1f653a74c4cd78d7ea283b5556539b96b/faq/
 excerpt: Frequently Asked Questions
 image: Ottawa_tall.jpg
 image_alt: Need Another Image Here
