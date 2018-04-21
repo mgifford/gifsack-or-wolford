@@ -13,6 +13,7 @@ layout: page
 # FAQ
 
 - [What is a Quaker Wedding?](#what-is-a-quaker-wedding)
+- [What is a Quaker?](#what-is-a-quaker)
 - [What to wear?](#what-to-wear)
 - [Can I bring my kids or pets?](#can-i-bring-my-kids-or-pets)
 - [Do we bring gifts?](#do-we-bring-gifts)
@@ -21,6 +22,14 @@ layout: page
 - [What does RandM.news stand for?](#what-does-randmnews-stand-for)
 
 ## What is a Quaker wedding?
+
+A Quaker wedding is in many ways similar to that of a Sunday morning worship sharing or for that matter a funeral. Generally we sit in a circle, often in silence, until someone is "called to speak". In most Quaker weddings, a lot of people want to have an opportunity to share something. In general it is traditional to only speak once in the gathering and not to speak too long. It is also not good to repeat what someone else has already shared. Although it is uncomfortable for some at first, it is important to leave space for silence between speakers, so that people can have a chance to reflect on what was said. 
+
+## What is a Quaker?
+
+Quakers are a religious community that generally believe in the ability of each person access what some refer to as "the light within". It is generally considered to be a Christian community, but includes people from all religious traditions as well as those who are agnostic or athiest. The guiding principles of most quakers are peace, equality, simplicity and truth. 
+
+There is sometimes some unusual language in Quaker processes, as some of the traditions of the community stem from the early days when George Fox originally challenged the church as the institution that defined "the truth" nearly 400 years ago.
 
 ## What to wear?
 
