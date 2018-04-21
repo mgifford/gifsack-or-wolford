@@ -28,17 +28,21 @@ Clothes.
 
 ## Can I bring my kids or pets?
 
+Kids yes, pets no. We love pets, but Wabino doesn't. 
+
+With kids, please let us know if they will need child care.  We are going to hire someone and already have a number of volunteers that can help. We just need to be more sure of the numbers.
+
 ## Do we bring gifts?
 
 We are not spring chickens looking to build a new home, we have plenty of stuff. No gifts please! 
 
 ## What if we want to make a donation?
 
-If you want to make a donation in our name, please consider giving to Inter Pares, Ecology Ottawa, or the Electronic Frontier Foundation.
+There is no need to make a donation.  Some people like to give something to help this new phase of our lives.  If you are such a person, please consider making a donation in our name to an organization like Inter Pares, Ecology Ottawa, or the Electronic Frontier Foundation.
 
 ## What is the hashtag?
 
-We're going to use **#randmnews** as it is close to the website we are using
+We're going to use **#randmnews** as it is close to the website we are using.  Please use that hashtag if you are sharing things about this celebration on social media.
 
 ## What does RandM.news stand for?
 
