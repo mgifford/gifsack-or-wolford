@@ -15,7 +15,7 @@ layout: page
 
 The main event is happening on Saturday evening.
 
-<p><em>5:45pm July 28, 2018 (after dinner)<br />
+<p><em>4:45pm July 28, 2018 (after dinner)<br />
   <a href="http://wabano.com/">Wabano Centre for Aboriginal Health</a>, <a href="https://www.google.com/maps/place/299+Montreal+Rd,+Vanier,+ON+K1L+6B8/@45.4373487,-75.6611751,17z/data=!3m1!4b1!4m5!3m4!1s0x4cce0541d22407df:0xa38d13cfa9c2bc3e!8m2!3d45.4373487!4d-75.6589864">299 Montreal Rd, Vanier, Ontario</a></em></p>
 
 The ceremony will begin at 6pm. It will be a Quaker ceremony - don't panic! We will give you lots of info and guidance. Please see What is a Quaker Wedding Ceremony? in the FAQ section. 
