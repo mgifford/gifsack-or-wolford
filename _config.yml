@@ -11,7 +11,7 @@
 
 # Site settings
 title: We are Getting Married!
-description: We are getting married! We want to holler from the rooftops <br>  <br> 'Wheeeee! Check out this fabulous love we have found!' <br>  <br> We want to take a serious moment to publicly speak of our love and commitments to each other. We want to share stories, and create new ones with you. 
+description: We want to holler from the rooftops <br>  <br> 'Wheeeee! Check out this fabulous love we have found!' 
 owner:
   name: Mike Gifford & Rebecca Wolsak
   email: mike@openconcept.ca
@@ -29,8 +29,8 @@ relative_permalinks: false
 # on landing page
 # - set the greeting only if you want to display the first green section
 greeting:
-  title: Welcome!  
-  text: This is the site for all information related to Mike & Rebecca's 2018 celebrations. Here you will find everything you need to join us in Ottawa, Vancouver and/or Thailand!
+  title: We want to take a serious moment to publicly speak of our love and commitments to each other.
+  text: We want to share stories, and create new ones with you. <br>  <br>This is the site for all information related to Mike & Rebecca's 2018 celebrations. Here you will find everything you need to join us in Ottawa, Vancouver and/or Thailand!
 
 # - title for your blog's featured posts
 # features-title: Ottawa
