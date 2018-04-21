@@ -28,7 +28,7 @@ We have hired our talented and lovely friend Susanne to take photos throughout t
 
 The Wabano Centre for Aboriginal Health is an urban health centre that provides health services to First Nations, Inuit and Métis communities, promotes the health of all Aboriginal people and community-building through education and advocacy, and serves as a centre of excellence for urban Aboriginal health. They have a beautiful mission and a beautiful building. They rent their grand gathering space as an income-generating project and we are so happy to support their good work. 
 
-## Pre-Wedding for **Family & Out of Towners**
+## Pre-Wedding for Family & Out of Towners
 
 Given that you are family and/or that you have travelled from afar, we would like to maximize this window of time with you. 
 
