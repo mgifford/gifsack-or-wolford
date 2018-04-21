@@ -54,9 +54,9 @@ If folks are keen, there is usually fabulous music and a riverside patio on Sund
 
 #### Map & Things to do in O-Town 
 
-We made a map of relevant or interesting [venues in Ottawa](https://www.google.com/maps/d/viewer?mid=19bKJw5R4ZpiY2VlZo6IpHQVXZttV71Nu&ll=45.41890687301883%2C-75.68983909074706&z=14). Or you can look at it below.
+We made a map of relevant or interesting [venues in Ottawa](https://www.google.com/maps/d/viewer?mid=19bKJw5R4ZpiY2VlZo6IpHQVXZttV71Nu&ll=45.41890687301883%2C-75.68983909074706&z=14) we've also pasted it in below.
 
-[This website](http://apt613.ca/). often has some great info on things going on in town.
+[This website](http://apt613.ca/) often has some great info on things going on in town.
 
 <iframe src="https://www.google.com/maps/d/embed?mid=19bKJw5R4ZpiY2VlZo6IpHQVXZttV71Nu" width="640" height="480"></iframe>
 
