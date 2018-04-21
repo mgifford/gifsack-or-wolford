@@ -7,6 +7,7 @@ $baseurl: '{{ site.baseurl }}/images';
 @import 'libs/vars';
 @import 'libs/functions';
 @import 'libs/mixins';
+
 @import 'font-awesome.min.css';
 @import url('https://fonts.googleapis.com/css?family=Open+Sans:400,400italic,600,600italic,800,800italic');
 @import url(https://fonts.googleapis.com/css?family=Lora:400,400italic,700,700italic);
@@ -1835,7 +1836,8 @@ $baseurl: '{{ site.baseurl }}/images';
 			text-transform: uppercase;
 			width: 16em;
 			z-index: 1;
-			font-size: xx-large;
+			font-size: x-large;
+			padding-bottom: 0px;
 
 			&:after {
 				background-image: url('images/arrow.svg');
