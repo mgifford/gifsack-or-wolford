@@ -30,7 +30,7 @@ relative_permalinks: false
 # - set the greeting only if you want to display the first green section
 greeting:
   title: Welcome!
-  text: We want to take a serious moment to publicly speak of our love and commitment to each other. We want to share stories, and create new ones with you. <br>  <br>This is the site for all information related to Mike & Rebecca's 2018 celebrations. Here you will find everything you need to join us in Ottawa, Vancouver and/or Thailand!
+  text: We want to take a serious moment to publicly speak of our love and commitment to each other. We want to share stories, and create new ones with you. <br>  <br>This is the site for all information related to Mike & Rebecca's 2018 celebrations. Here you will find everything you need to join us in Ottawa, Vancouver and/or Thailand! We have even added a FAQ section if you scroll to the bottom. 
 
 # - title for your blog's featured posts
 # features-title: Ottawa
