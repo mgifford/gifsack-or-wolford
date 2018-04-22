@@ -113,10 +113,10 @@ $baseurl: '{{ site.baseurl }}/images';
 
 /* Adding anchor to see that the link goes goes to a heading and is visible */
 :target:before {
-    content: "";
-    display: inline-block;
-    height: 180px;
-    margin: -180px 0 0;
+  content:"";
+  display:block;
+  height:60px; /* fixed header height*/
+  margin:-60px 0 0; /* negative fixed header height */
 }
 
 	strong, b {
