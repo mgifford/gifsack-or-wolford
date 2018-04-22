@@ -18,10 +18,14 @@ body {
 }
 
 .box {
-	border-radius: 3px;
+    border-radius: 3px;
     background: #b41c1c;
     color: #fff;
-    margin: auto; padding: 12px;
+    margin: auto; padding: 9px;
+}
+	
+#password {
+   width: 300px; 
 }
 
 .lightbox {
@@ -74,7 +78,7 @@ div.vertical {
 			<div class="vertical">
 				<div class="box">
 					<label style="margin: 16px; text-align: center;" for="password">What province do Mike & Rebecca live in?</label>
-					<input style="margin: 16px; text-align: center;" id="password" type="text" placeholder="This is a case sensitive passord" /> <br />
+					<input style="margin: 16px; text-align: center;" class="password" id="password" type="text" placeholder="This is a case sensitive passord" /> <br />
 					<button id="loginbutton" type="button">Enter</button>
 					<p id="wrongPassword" style="display: none">wrong password</p>
 				</div>
