@@ -33,6 +33,8 @@ The Wabano Centre for Aboriginal Health is an urban health centre that provides 
 
 ## Pre-Wedding for Family & Out of Towners
 
+### Friday Night (Family & Out of Town)
+
 Given that you are family and/or that you have travelled from afar, we would like to maximize this window of time with you. 
 
 <p><em>Pizza & Beer @ 6pm Friday July 27 <br />
@@ -41,15 +43,15 @@ Given that you are family and/or that you have travelled from afar, we would lik
 We would love to have you over for dinner at our home on Friday night (July 27). It will be a simple casual affair - pizza and salad in our backyard. We will have beer, wine, and juice no need to bring anything. As it is the night before the big day we will try to make this an early night :)
 
 
-### Saturday Morning
+### Saturday Morning (Family & Out of Town)
 
 We will be organizing a drop-in breakfast - simple pastries and coffee :) This will also be a chance to group before heading off on a hike. More info to come!
 
-### Saturday Afternoon
+### Saturday Afternoon (Everyone)
 
 Some friends have offered to guide you on a hike (fairly flat) in Gatineau park. More info to come!
 
-### Sunday (July 29) afternoon - 12:30-4pm
+### Sunday (July 29) afternoon - 12:30-4pm (Everyone)
 
 Our only regret about having the wedding at Wabano is the lack of outdoors time. So we have decided to put on our wedding outfits on Sunday afternoon and head to a lake. Please join us with your swimsuits, cameras and some food for a potluck picnic in the park! It will be low key - we are not coordinating food. We would love some photos of us in our outfits outside in the sun, so bring your camera/phone. If they work out great! If it rains, no problem :) We will bring Tibi and go to a lake you can walk to in about 25 mins (mostly flat). [Parking and lake marked on map here](https://drive.google.com/open?id=19bKJw5R4ZpiY2VlZo6IpHQVXZttV71Nu&usp=sharing).
 
