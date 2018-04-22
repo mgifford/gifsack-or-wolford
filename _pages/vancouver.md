@@ -30,6 +30,10 @@ What to wear? Whatever feels celebratory and works for you outside (if it is rai
 Just a heads up: Hannah the doodle and Tibi the whoodle will be there. And probably other dogs from the hood will drop by.
 
 ### The Next Day
-Sunday, September 2, 10am 
 
+<p>
+Sunday, September 2, 10am 
+<br />
+<a href="https://www.seatoskygondola.com/visit/how-get-here">36800 BC-99, Squamish BC</a>
+</p>  
 We are going to take the sea to sky gondala at probably 10am on Sunday morning and would love it if you could join us! We will have a walk and snack in the mountains, then come back down. We will post more info here on timing and tickets closer to the time.
