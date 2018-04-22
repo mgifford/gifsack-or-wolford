@@ -16,7 +16,7 @@ The main event is happening on Saturday evening, but we wanted to maximize the w
 - [The Wedding (Saturday night)](#Wabano)
 - [Family & Out-of-Towner Notes (pre-Wedding activities)](#pre-wedding-for-family--out-of-towners)
 - [Post-Wedding Activity (Sunday)](#sunday-july-29-afternoon---1230-4pm)
-- [Map & Things to do in O-town] (#Map-&-Things-to-do-in-O-town)
+- [Map & Things to do in O-town](#Map-&-Things-to-do-in-O-town)
 
 
 <p id="Wabano"><em>5:45pm July 28, 2018 (after dinner)<br /><a href="http://wabano.com/">Wabano Centre for Aboriginal Health</a>, <a href="https://www.google.com/maps/place/299+Montreal+Rd,+Vanier,+ON+K1L+6B8/@45.4373487,-75.6611751,17z/data=!3m1!4b1!4m5!3m4!1s0x4cce0541d22407df:0xa38d13cfa9c2bc3e!8m2!3d45.4373487!4d-75.6589864">299 Montreal Rd, Vanier, Ontario</a></em></p>
