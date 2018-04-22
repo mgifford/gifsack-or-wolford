@@ -13,10 +13,10 @@ layout: page
 
 ## The Wedding
 
-The main event is happening on Saturday evening, but we wanted to fill up the weekend:
+The main event is happening on Saturday evening, but we wanted to maximize the weekend:
 
-- [The Wedding](#Wabano)
-- [Out-of-Towner Notes (pre-Wedding Activities)](#pre-wedding-for-family--out-of-towners)
+- [The Wedding (Saturday night)](#Wabano)
+- [Family & Out-of-Towner Notes (pre-Wedding activities)](#pre-wedding-for-family--out-of-towners)
 - [Post-Wedding Activity (Sunday)](#sunday-july-29-afternoon---1230-4pm)
 
 
@@ -49,7 +49,7 @@ We will be organizing a drop-in breakfast - simple pastries and coffee :) This w
 
 ### Saturday Afternoon
 
-Some friends have offered to guide you on a short walk or a longer hike (still fairly flat) in Gatineau park. More info to come!
+Some friends have offered to guide you on a hike (fairly flat) in Gatineau park. More info to come!
 
 ### Sunday (July 29) afternoon - 12:30-4pm
 
