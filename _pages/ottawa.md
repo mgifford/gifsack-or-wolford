@@ -53,7 +53,7 @@ Some friends have offered to guide you on a hike (fairly flat) in Gatineau park.
 
 ### Sunday (July 29) afternoon - 12:30-4pm (Everyone)
 
-Our only regret about having the wedding at Wabano is the lack of outdoors time. So we have decided to put on our wedding outfits on Sunday afternoon and head to a lake. Please join us with your swimsuits, cameras and some food for a potluck picnic in the park! It will be low key - we are not coordinating food. We would love some photos of us in our outfits outside in the sun, so bring your camera/phone. If they work out great! If it rains, no problem :) We will bring Tibi and go to a lake you can walk to in about 25 mins (mostly flat). [Parking and lake marked on map here](https://drive.google.com/open?id=19bKJw5R4ZpiY2VlZo6IpHQVXZttV71Nu&usp=sharing).
+Our only regret about having the wedding at Wabano is the lack of outdoors time. So we have decided to put on our wedding outfits on Sunday afternoon and head to a lake. Please join us with your swimsuits, cameras and some food for a potluck picnic in the park! It will be low key - we are not coordinating food. We would love some photos of us in our outfits outside in the sun, so bring your camera/phone. If they work out great! If it rains, no problem :) We will bring Tibi and go to a lake you can walk to in about 25 mins (mostly flat). [Parking and lake marked on map here](https://drive.google.com/open?id=19bKJw5R4ZpiY2VlZo6IpHQVXZttV71Nu&usp=sharing) or see the bottom of this age.
 
 If folks are keen, there is usually fabulous music and a riverside patio on Sunday afternoons as of 4pm at the Blacksheep Inn in Wakefield, just a bit further north (also on map mentioned above, the one you can see at the bottom of this page.)
 
