@@ -28,9 +28,7 @@ A Quaker wedding is in many ways similar to that of a Sunday morning worship sha
 
 ## What is a Quaker?
 
-Quakers are a religious community that generally believe in the ability of each person access what some refer to as "the light within". It is generally considered to be a Christian community, but includes people from all religious traditions as well as those who are agnostic or athiest. The guiding principles of most quakers are peace, equality, simplicity and truth. 
-
-There is sometimes some unusual language in Quaker processes, as some of the traditions of the community stem from the early days when George Fox originally challenged the church as the institution that defined "the truth" nearly 400 years ago.
+[Quakers](http://quaker.ca/who-we-are/beliefs/) are a religious community that generally believe in the ability of each person access what some refer to as "the light within". It is generally considered to be a Christian community, but includes people from all religious traditions as well as those who are agnostic or athiest. The guiding principles of most Quakers are [peace, equality, simplicity and truth](https://www.quaker.org.uk/about-quakers/our-values). 
 
 ## What is a Quaker Wedding Certificate?
 
