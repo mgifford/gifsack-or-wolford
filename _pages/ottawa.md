@@ -9,8 +9,6 @@ background-image: Ottawa2.jpg
 layout: page
 ---
 
-## The Wedding Site for Rebecca &amp; Mike's Celebration!
-
 The main event is happening on Saturday evening, but we wanted to maximize the weekend:
 
 - [The Wedding (Saturday night)](#Wabano)
