@@ -58,6 +58,14 @@ Kids yes, pets no. We love pets, but Wabano doesn't.
 
 If your kids know us and they want to celebrate with us, then we want to celebrate with them! Also of course if you are traveling from out of town and have your kids with you, feel free to bring them too. Keep in mind this is an after-dinner evening affair... Please get in touch with us about child care.  We will have a kid-friendly space, some childcare volunteers and some fun activities. We just need to be sure of the numbers.
 
+## What about photos?
+
+We will put photos up on flickr, if you have some photos to share we would love it if you added them to this [group too.](https://www.flickr.com/groups/randmnews/) If you don't want to use flickr you can send us the photos, or post them to this [Facebook group.](https://www.facebook.com/openconcept/media_set?set=a.10151068696649959.508164958&type=3&uploaded=1)
+
+For the Ottawa ceremony, we have hired our talented and lovely friend Susanne to take photos throughout the evening and she will also have a fun photo booth set up. We ask that you set your cameras and phones aside for the ceremony itself, and let her be responsible for capturing it.
+
+Not everyone likes having their photo taken. Some don't like to have their photos put up on the internet. There will be a lot of photos at this event, but do let us know and we'll try to keep you out of them.
+
 ## Do we bring gifts?
 
 We are not spring chickens looking to build a new home, we have plenty of stuff. No gifts please! 
@@ -74,12 +82,5 @@ We're going to use **#randmnews** as it is close to the website we are using.  P
 
 Rebecca and Mike of course. It is easier to say than MandR.news and we didn't want it to get long and complicated.
 
-
-## What about photos?
-
-We will put photos up on flickr, if you have some photos to share we would love it if you added them to this [group too.](https://www.flickr.com/groups/randmnews/)If you don't want to use flickr you can send us the photos, or post them to this [Facebook group.](https://www.facebook.com/openconcept/media_set?set=a.10151068696649959.508164958&type=3&uploaded=1)
-
-For the Ottawa ceremony, we have hired our talented and lovely friend Susanne to take photos throughout the evening and she will also have a fun photo booth set up. We ask that you set your cameras and phones aside for the ceremony itself, and let her be responsible for capturing it.
-
-Not everyone likes having their photo taken. Some don't like to have their photos put up on the internet. There will be a lot of photos at this event, but do let us know and we'll try to keep you out of them. 
+ 
 
