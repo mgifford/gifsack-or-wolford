@@ -23,6 +23,10 @@ Thsee mostly relate to the Ottawa wedding, but we will keep adding info here as 
 - [What if we want to make a donation?](#what-if-we-want-to-make-a-donation)
 - [What is the hashtag?](#what-is-the-hashtag)
 - [What does RandM.news stand for?](#what-does-randmnews-stand-for)
+- [What if I don't want my photo taken?](#what-if-i-dont-want-my-photo-taken)
+- [What about photos in the Ottawa Ceremony?](#what-about-photos-in-the-ottawa-ceremony)
+
+
 
 ## What is a Quaker wedding?
 
@@ -69,3 +73,12 @@ We're going to use **#randmnews** as it is close to the website we are using.  P
 ## What does RandM.news stand for?
 
 Rebecca and Mike of course. It is easier to say than MandR.news and we didn't want it to get long and complicated.
+
+## What if I don't want my photo taken?
+
+Not everyone likes having their photo taken. Some don't like to have their photos put up on the internet. There will be a lot of photos at this event, but do let us know and we'll try to keep you out of them. 
+
+## What about photos in the Ottawa Ceremony?
+
+We have hired our talented and lovely friend Susanne to take photos throughout the evening and she will also have a fun photo booth set up. We ask that you set your cameras and phones aside for the ceremony and let her be responsible for capturing it.
+
