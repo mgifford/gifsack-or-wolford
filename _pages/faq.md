@@ -42,7 +42,7 @@ At the end of each of our events we will be asking you to sign our Wedding Certi
 
 ## What to wear?
 
-We are going to get dressed up. We want you to be comfortable and to feel great. Now might be the perfect time to pull out those sequins, or not, depending on you. We have often joked about fusing our names (well, this was only partly a joke for one of us - it seme slike a cool idea! to one of us.) In our case this leaves us with the unfortunate choice of the rather posh Wolford or the somewhat less lovely Giffsack. We think you can use thse two names for outfit inspiration. Maybe you are more of a Giffsack and you wnat to wear those yellow shorst and the hawaiian shirt. Yay, we are excited to see it. Or maybe you wnat to wear your Wolfrod gown. Go for it.
+We are going to get dressed up. We want you to be comfortable and to feel great. Now might be the perfect time to pull out those sequins, or not, depending on you. We have often joked about fusing our names (well, this was only partly a joke for one of us - it seems like a cool idea to one of us.) In our case, this leaves us with the unfortunate choice of the rather posh Wolford or the somewhat less posh Giffsak. We think you can use these two names for outfit inspiration. Maybe you are more of a Giffsak and you want to wear those yellow shorts and the hawaiian shirt. Yay! We are excited to see it. Or maybe you want to wear your Wolford gown. Go for it.
 
 As we said, we will be a bit dressy. But the most important thing to us is that you are comfy. And ready to dance, if the inspiration hits you.
 
@@ -50,7 +50,7 @@ As we said, we will be a bit dressy. But the most important thing to us is that 
 
 Kids yes, pets no. We love pets, but Wabano doesn't. 
 
-If your kids know us and they want to celebrate with us, then we want to celebrate with them! Also of course if you are traveling from out of town and have your kids with you, feel free to bring them too. Keep in mind this is an after-dinner evening affair... Please get i n touch with us about child care.  We will have a kid-friendly space, some child care volunteers and some fun activities. We just need to be more sure of the numbers.
+If your kids know us and they want to celebrate with us, then we want to celebrate with them! Also of course if you are traveling from out of town and have your kids with you, feel free to bring them too. Keep in mind this is an after-dinner evening affair... Please get in touch with us about child care.  We will have a kid-friendly space, some childcare volunteers and some fun activities. We just need to be sure of the numbers.
 
 ## Do we bring gifts?
 
