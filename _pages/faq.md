@@ -24,7 +24,12 @@ layout: page
 
 ## What is a Quaker wedding?
 
-A Quaker wedding is in many ways similar to that of a Sunday morning worship sharing or for that matter a funeral. Generally we sit in a circle, often in silence, until someone is "called to speak". In most Quaker weddings, a lot of people want to have an opportunity to share something. In general it is traditional to only speak once in the gathering and not to speak too long. It is also not good to repeat what someone else has already shared. Although it is uncomfortable for some at first, it is important to leave space for silence between speakers, so that people can have a chance to reflect on what was said. 
+Quaker weddings do not have a priest or pastor residing over the ceremony - as a community this is up to us. There will be Quakers who will guide us through this process - ensure Mike and Rebecca jump through the legal hoops - and ensure those of us who feel inspired, can speak. We will sit in a circle in silence, and if you feel inspired to speak you will stand and speak. In most Quaker weddings, a lot of people want to have an opportunity to share something. Some general guidance rules might be helpful:
+-	only speak once if possible
+-	do not to speak for very long
+-	do not good repeat what someone else has already shared (this is a common problem at weddings, everyone wants to jump and say congratulations, or don’t go to bed angry, but keep in mind there is time later to chat with the newlyweds).
+Although it is uncomfortable for some at first, it is important to leave space for silence between speakers. Silence gives us all a chance to reflect on what was said.
+ 
 
 ## What is a Quaker?
 
@@ -32,17 +37,19 @@ A Quaker wedding is in many ways similar to that of a Sunday morning worship sha
 
 ## What is a Quaker Wedding Certificate?
 
-At the end of each of our events we will be asking people to sign our Wedding Certificate. This is not a legal document, but one that will adorn our house as a memory of our committment to each other and the family & friends that support us. We will encourage everyone to sign the document once. This is also an indication that people witnessed our commitment and (for those who can) are committed to helping us maintain a lifetime bond. 
+At the end of each of our events we will be asking you to sign our Wedding Certificate. This is not a legal document, but one that we will have on our wall as a memory of our committment to each other and the family and friends that support us. We will encourage everyone to sign the document once. This is an indication that you witnessed our commitment and (for those who can) are committed to helping us maintain a lifetime bond. Those who can not yet write are encourgaed to leave a thumb or paw print.
 
 ## What to wear?
 
-Clothes.
+We are going to get dressed up. We want you to be comfortable and to feel great. Now might be the perfect time to pull out those sequins, or not, depending on you. We have often joked about fusing our names (well, this was only partly a joke for one of us - it seme slike a cool idea! to one of us.) In our case this leaves us with the unfortunate choice of the rather posh Wolford or the somewhat less lovely Giffsack. We think you can use thse two names for outfit inspiration. Maybe you are more of a Giffsack and you wnat to wear those yellow shorst and the hawaiian shirt. Yay, we are excited to see it. Or maybe you wnat to wear your Wolfrod gown. Go for it.
+
+As we said, we will be a bit dressy. But the most important thing to us is that you are comfy. And ready to dance, if the inspiration hits you.
 
 ## Can I bring my kids or pets?
 
-Kids yes, pets no. We love pets, but Wabino doesn't. 
+Kids yes, pets no. We love pets, but Wabano doesn't. 
 
-With kids, please let us know if they will need child care.  We are going to hire someone and already have a number of volunteers that can help. We just need to be more sure of the numbers.
+If your kids know us and they want to celebrate with us, then we want to celebrate with them! Also of course if you are traveling from out of town and have your kids with you, feel free to bring them too. Keep in mind this is an after-dinner evening affair... Please get i n touch with us about child care.  We will have a kid-friendly space, some child care volunteers and some fun activities. We just need to be more sure of the numbers.
 
 ## Do we bring gifts?
 
@@ -58,4 +65,4 @@ We're going to use **#randmnews** as it is close to the website we are using.  P
 
 ## What does RandM.news stand for?
 
-Rebecca and Mike of course. Was easier to say than MandR.news and we didn't want it to get long and complicated.
+Rebecca and Mike of course. It is easier to say than MandR.news and we didn't want it to get long and complicated.
