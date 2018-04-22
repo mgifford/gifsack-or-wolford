@@ -10,7 +10,7 @@ layout: page
 ---
 
 
-# FAQ
+## FAQ
 
 - [What is a Quaker Wedding?](#what-is-a-quaker-wedding)
 - [What is a Quaker?](#what-is-a-quaker)
