@@ -19,12 +19,12 @@ Thsee mostly relate to the Ottawa wedding, but we will keep adding info here as 
 - [What is a Quaker Wedding Certificate?](#what-is-a-quaker-wedding-certificate)
 - [What to wear?](#what-to-wear)
 - [Can I bring my kids or pets?](#can-i-bring-my-kids-or-pets)
+- [What about photos?](#what-about-photos)
 - [Do we bring gifts?](#do-we-bring-gifts)
 - [What if we want to make a donation?](#what-if-we-want-to-make-a-donation)
 - [What is the hashtag?](#what-is-the-hashtag)
 - [What does RandM.news stand for?](#what-does-randmnews-stand-for)
-- [What if I don't want my photo taken?](#what-if-i-dont-want-my-photo-taken)
-- [What about photos in the Ottawa Ceremony?](#what-about-photos-in-the-ottawa-ceremony)
+
 
 
 
@@ -74,11 +74,12 @@ We're going to use **#randmnews** as it is close to the website we are using.  P
 
 Rebecca and Mike of course. It is easier to say than MandR.news and we didn't want it to get long and complicated.
 
-## What if I don't want my photo taken?
+
+## What about photos?
+
+We will put photos up on flickr, if you have some photos to share we would love it if you added them to this [group too.](https://www.flickr.com/groups/randmnews/)If you don't want to use flickr you can send us the photos, or post them to this [Facebook group.](https://www.facebook.com/openconcept/media_set?set=a.10151068696649959.508164958&type=3&uploaded=1)
+
+For the Ottawa ceremony, we have hired our talented and lovely friend Susanne to take photos throughout the evening and she will also have a fun photo booth set up. We ask that you set your cameras and phones aside for the ceremony itself, and let her be responsible for capturing it.
 
 Not everyone likes having their photo taken. Some don't like to have their photos put up on the internet. There will be a lot of photos at this event, but do let us know and we'll try to keep you out of them. 
-
-## What about photos in the Ottawa Ceremony?
-
-We have hired our talented and lovely friend Susanne to take photos throughout the evening and she will also have a fun photo booth set up. We ask that you set your cameras and phones aside for the ceremony and let her be responsible for capturing it.
 
