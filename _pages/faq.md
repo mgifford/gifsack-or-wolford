@@ -24,7 +24,7 @@ layout: page
 
 ## What is a Quaker wedding?
 
-Quaker weddings do not have a priest or pastor residing over the ceremony - as a community this is up to us. There will be Quakers who will guide us through this process - ensure Mike and Rebecca jump through the legal hoops - and ensure those of us who feel inspired, can speak. We will sit in a circle in silence, and if you feel inspired to speak you will stand and speak. In most Quaker weddings, a lot of people want to have an opportunity to share something. Some general guidance rules might be helpful:
+Quaker weddings do not have a priest or pastor presiding over the ceremony - as a community this is up to us. There will be Quakers who will guide us through this process - ensure Mike and Rebecca jump through the legal hoops - and ensure those of us who feel inspired, can speak. We will sit in a circle in silence, and if you feel inspired to speak you will stand and speak. In most Quaker weddings, a lot of people want to have an opportunity to share something. Some general guidance rules might be helpful:
 -	only speak once if possible
 -	do not to speak for very long
 -	do not good repeat what someone else has already shared (this is a common problem at weddings, everyone wants to jump and say congratulations, or don’t go to bed angry, but keep in mind there is time later to chat with the newlyweds).
