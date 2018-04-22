@@ -14,6 +14,7 @@ layout: page
 
 - [What is a Quaker Wedding?](#what-is-a-quaker-wedding)
 - [What is a Quaker?](#what-is-a-quaker)
+- [What is a Quaker Wedding Certificate?](#what-is-a-quaker-wedding-certificate)
 - [What to wear?](#what-to-wear)
 - [Can I bring my kids or pets?](#can-i-bring-my-kids-or-pets)
 - [Do we bring gifts?](#do-we-bring-gifts)
@@ -30,6 +31,10 @@ A Quaker wedding is in many ways similar to that of a Sunday morning worship sha
 Quakers are a religious community that generally believe in the ability of each person access what some refer to as "the light within". It is generally considered to be a Christian community, but includes people from all religious traditions as well as those who are agnostic or athiest. The guiding principles of most quakers are peace, equality, simplicity and truth. 
 
 There is sometimes some unusual language in Quaker processes, as some of the traditions of the community stem from the early days when George Fox originally challenged the church as the institution that defined "the truth" nearly 400 years ago.
+
+## What is a Quaker Wedding Certificate?
+
+At the end of each of our events we will be asking people to sign our Wedding Certificate. This is not a legal document, but one that will adorn our house as a memory of our committment to each other and the family & friends that support us. We will encourage everyone to sign the document once. This is also an indication that people witnessed our commitment and (for those who can) are committed to helping us maintain a lifetime bond. 
 
 ## What to wear?
 
