@@ -12,7 +12,7 @@ layout: page
 
 ## FAQ
 
-Thsee mostly relate to the Ottawa wedding, but we will keep adding info here as other questions arise.
+These mostly relate to the Ottawa wedding, but we will keep adding info here as other questions arise.
 
 - [What is a Quaker Wedding?](#what-is-a-quaker-wedding)
 - [What is a Quaker?](#what-is-a-quaker)
