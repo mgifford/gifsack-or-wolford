@@ -50,7 +50,7 @@ We are not spring chickens looking to build a new home, we have plenty of stuff.
 
 ## What if we want to make a donation?
 
-There is no need to make a donation.  Some people like to give something to help this new phase of our lives.  If you are such a person, please consider making a donation in our name to an organization like Inter Pares, Ecology Ottawa, or the Electronic Frontier Foundation.
+**There is no need to make a donation.**  Some people like to give something to help this new phase of our lives.  If you are such a person, please consider making a donation in our name to an organization like Inter Pares, Ecology Ottawa, or the Electronic Frontier Foundation.
 
 ## What is the hashtag?
 
