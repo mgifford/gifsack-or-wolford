@@ -8,6 +8,7 @@ image_alt: Rebecca & Mike in the Mountains
 background-image: Vancouver2.jpg
 layout: page
 ---
+
 # West Vanouver Reception (& next day walk)
 
 ## Beach Reception
