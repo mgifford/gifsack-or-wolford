@@ -18,3 +18,4 @@ We hope to have a mini-ceremony/celebration on December 31st. We will talk a bit
 
 Mike & Rebecca will fly out of Ottawa on the 26th and land late at night on the 27th. So we are booked to be on the beach on the 28th. If you plan to join, please make sure we are in touch to ensure you have a bed. New Year's Eve is the busiest time of the entire year, so we must book beds ASAP. We have block booked a large number of rooms but wont be able to hold onto them for long.
 
+<iframe src="https://www.google.com/maps/embed?pb=!1m16!1m12!1m3!1d62484.624807932814!2d102.44287895311007!3d11.815017805138549!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!2m1!1s1%2F8-1%2F9+Moo+2+Tambol+Koh+Mak+Amphur+Koh+Kood+Trad+23000!5e0!3m2!1sen!2sca!4v1524437471386" width="600" height="450" frameborder="0" style="border:0" allowfullscreen></iframe>
