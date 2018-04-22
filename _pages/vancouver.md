@@ -14,12 +14,13 @@ layout: page
 
 ## Beach Reception
 
+<p>
 We will be having a drink oceanside on September 1st!
-
+<br />
 2-6pm
-
-[8815 Lawrence Way, West Vancouver](https://www.google.com/maps/place/8815+Lawrence+Way,+West+Vancouver,+BC+V7W+2T7/data=!4m2!3m1!1s0x54866940036f6e11:0x3091d0c4ef57a0ba?sa=X&ved=0ahUKEwjVsM7czszaAhWFw4MKHalGBzoQ8gEIKDAA)
-
+<br />
+<a hrefe="https://www.google.com/maps/place/8815+Lawrence+Way,+West+Vancouver,+BC+V7W+2T7/data=!4m2!3m1!1s0x54866940036f6e11:0x3091d0c4ef57a0ba?sa=X&ved=0ahUKEwjVsM7czszaAhWFw4MKHalGBzoQ8gEIKDAA">8815 Lawrence Way, West Vancouver</a>
+</p>
 
 For us, this is a chance to celebrate with folks who aren’t traveling to Ottawa for the wedding - and to celebrate again with some of you who are coming to both! Rebecca’s dad and step-mum – Joost and Jane - will be hosting at their beautiful home. 
 There will be drinks and nibbles! We will talk a bit about the wedding (we will say our short vows again) and make a few toasts. We will also be asking you to sign a part of our Quaker wedding certificate – this is a beautiful part of the Quaker wedding tradition that we are extending. The idea is that loved ones sign the certificate to say that you witnessed our commitment to each other and you commit to supporting our relationship. 
