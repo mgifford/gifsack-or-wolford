@@ -23,7 +23,7 @@ The main event is happening on Saturday evening, but we wanted to maximize the w
 
 ## The Wedding
   
-The ceremony will begin at 6pm. It will be a Quaker ceremony - don't panic! We will give you lots of info and guidance on the day. If you are curious, please see What is a Quaker Wedding Ceremony? in the [FAQ section](/f9f742e1f653a74c4cd78d7ea283b5556539b96b/faq/#what-is-a-quaker-wedding-certificate). 
+The ceremony will begin at 6pm. It will be a Quaker ceremony - don't panic! We will give you lots of info and guidance on the day. If you are curious, please see What is a Quaker Wedding Ceremony? in the [FAQ section](/f9f742e1f653a74c4cd78d7ea283b5556539b96b/faq/). 
 
 The ceremony will last for about one hour. We will then all sign our wedding certificate and this will be closely followed by some toasts. We will then have some wine, desert and cheese - yum! There will be music  to boogie to, a photo booth to be goofy in and friends to chat with. We will have some prosecco, wine and juice - and a cash bar if you fancy something a bit different.
 
