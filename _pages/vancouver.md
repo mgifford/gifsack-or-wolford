@@ -36,4 +36,7 @@ Sunday, September 2, 10am
 <br />
 <a href="https://www.seatoskygondola.com/visit/how-get-here">36800 BC-99, Squamish BC</a>
 </p>  
-We are going to take the sea to sky gondala at probably 10am on Sunday morning and would love it if you could join us! We will have a walk and snack in the mountains, then come back down. We will post more info here on timing and tickets closer to the time.
+We are going to take the [Sea to Sky Gondala](https://www.seatoskygondola.com/) at probably 10am on Sunday morning and would love it if you could join us! We will have a walk and snack in the mountains, then come back down. We will post more info here on timing and tickets closer to the time.
+
+
+<iframe src="https://www.google.com/maps/d/embed?mid=108VAJJzX_zSbEFxR6qjCljE-xvbz9ges" width="640" height="480"></iframe>
