@@ -50,13 +50,13 @@ Some friends have offered to guide you on a short walk or a longer hike (still f
 
 Our only regret about having the wedding at Wabano is the lack of outdoors time. So we have decided to put on our wedding outfits on Sunday afternoon and head to a lake. Please join us with your swimsuits, cameras and some food for a potluck picnic in the park! It will be low key - we are not coordinating food. We would love some photos of us in our outfits outside in the sun, so bring your camera/phone. If they work out great! If it rains, no problem :) We will bring Tibi and go to a lake you can walk to in about 25 mins (mostly flat). [Parking and lake marked on map here](https://drive.google.com/open?id=19bKJw5R4ZpiY2VlZo6IpHQVXZttV71Nu&usp=sharing).
 
-If folks are keen, there is usually fabulous music and a riverside patio on Sunday afternoons as of 4pm at the Blacksheep Inn in Wakefield, just a bit further north (also on map.)
+If folks are keen, there is usually fabulous music and a riverside patio on Sunday afternoons as of 4pm at the Blacksheep Inn in Wakefield, just a bit further north (also on map mentioned above, the one you can see at the bottom of this page.)
 
 #### Map & Things to do in O-Town 
 
-We made a map of relevant or interesting [venues in Ottawa](https://www.google.com/maps/d/viewer?mid=19bKJw5R4ZpiY2VlZo6IpHQVXZttV71Nu&ll=45.41890687301883%2C-75.68983909074706&z=14) we've also pasted it in below.
+For a fairly small town, there is a lot to do. We made a map of relevant or interesting [places in Ottawa](https://www.google.com/maps/d/viewer?mid=19bKJw5R4ZpiY2VlZo6IpHQVXZttV71Nu&ll=45.41890687301883%2C-75.68983909074706&z=14) (we've also pasted it in below.)
 
-[This website](http://apt613.ca/) often has some great info on things going on in town.
+[This website](http://apt613.ca/) also has some great info on things going on in town.
 
 <iframe src="https://www.google.com/maps/d/embed?mid=19bKJw5R4ZpiY2VlZo6IpHQVXZttV71Nu" width="640" height="480"></iframe>
 
