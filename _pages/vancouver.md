@@ -1,6 +1,6 @@
 ---
 key: 2
-title: West Vanouver Reception (& next day walk)
+title: Vancouver
 permalink: /f9f742e1f653a74c4cd78d7ea283b5556539b96b/Vancouver/
 excerpt: A beach party at Joost & Jane's Place (Near Sunset Marina)
 image: Vancouver_tall.jpg
@@ -8,6 +8,8 @@ image_alt: Rebecca & Mike in the Mountains
 background-image: Vancouver2.jpg
 layout: page
 ---
+# West Vanouver Reception (& next day walk)
+
 ## Beach Reception
 
 We will be having a drink oceanside on September 1st!
