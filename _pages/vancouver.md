@@ -9,7 +9,8 @@ background-image: Vancouver2.jpg
 layout: page
 ---
 
-## West Vanouver Reception (& next day walk)
+## West Vanouver Reception **(& next day walk below)**
+
 
 ## Beach Reception
 
