@@ -70,6 +70,8 @@ Not everyone likes having their photo taken. Some don't like to have their photo
 
 We are not spring chickens looking to build a new home, we have plenty of stuff. No gifts please! 
 
+Our smart friend Andrew has given us a fun idea (which we have tweaked a little...) Rebecca is going to make an album/scrapbook full of photos, and various triggers for our memory, from all of our celebrations. **If you feel inspired** we would love you to bring a contribution to the book - it could be a picture you have drawn, a poem you have written, some sage or silly advice on relationships...whatever you want. We will have a box at each of the celebrations where you can drop off your contribution. We will also have some paper and pens, and perhaps a little glitter, beside the box in case inspiration hits you on the night.
+
 ## What if we want to make a donation?
 
 **There is no need to make a donation.**  We understand that for some people, no gifts is uncomfortable and they want to do something.  If you are such a person, you could consider making a donation in our name to an organization like Inter Pares, Ecology Ottawa, or, for those in the US, the Electronic Frontier Foundation.
