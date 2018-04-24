@@ -51,7 +51,7 @@ At the end of each of our events we will be asking you to sign our Wedding Certi
 
 We are going to get dressed up. We want you to be comfortable and to feel great. Now might be the perfect time to pull out those sequins, or not, depending on you. We have often joked about fusing our names (well, this was only partly a joke for one of us - it seems like a cool idea to one of us.) In our case, this leaves us with the unfortunate choice of the rather posh Wolford or the somewhat less posh Giffsak. We think you can use these two names for outfit inspiration. Maybe you are more of a Giffsak and you want to wear those yellow shorts and the hawaiian shirt. Yay! We are excited to see it. Or maybe you want to wear your Wolford gown. Go for it.
 
-As we said, we will be a bit dressy. But the most important thing to us is that you are comfy. And ready to dance, if the inspiration hits you.
+As we said, we will be a bit dressy. But the most important thing to us is that you are comfy. And ready to dance, if the inspiration hits you. It is likley to be a hot and humid day, but there will be air conditioning.
 
 ## What will the weather be like?
 
