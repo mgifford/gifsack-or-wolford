@@ -13,7 +13,7 @@ The main event is happening on Saturday evening, but we wanted to maximize the w
 
 - [The Wedding (Saturday night)](#Wabano)
 - [Family & Out-of-Towner Notes (pre-Wedding activities)](#pre-wedding-for-family--out-of-towners)
-- [Post-Wedding Activity for all (Sunday picnic)](#sunday-afternoon-july-29)
+- [Post-Wedding Activity for all (Sunday picnic)](#sunday-afternoon-(july-29)-(Everyone-Welcome!!-))
 - [Map & Things to do in O-town](#map--things-to-do-in-o-town)
 
 
