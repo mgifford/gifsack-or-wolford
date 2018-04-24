@@ -13,7 +13,7 @@ The main event is happening on Saturday evening, but we wanted to maximize the w
 
 - [The Wedding (Saturday night)](#Wabano)
 - [Family & Out-of-Towner Notes (pre-Wedding activities)](#pre-wedding-for-family--out-of-towners)
-- [Post-Wedding Activity for all (Sunday picnic)](#sunday-july-29-afternoon---1230-4pm)
+- [Post-Wedding Activity for all (Sunday picnic)](#sunday-afternoon-july-29)
 - [Map & Things to do in O-town](#map--things-to-do-in-o-town)
 
 
@@ -33,7 +33,7 @@ The Wabano Centre for Aboriginal Health is an urban health centre that provides 
 
 ## Pre-Wedding for Family & Out of Towners
 
-### Friday Night (Family & Out of Town)
+### Friday Night (July 27) (Family & Out of Town)
 
 Given that you are family and/or that you have travelled from afar, we would like to maximize this window of time with you. 
 
@@ -43,14 +43,15 @@ Given that you are family and/or that you have travelled from afar, we would lik
 We would love to have you over for dinner at our home on Friday night (July 27). It will be a simple casual affair - pizza and salad in our backyard. We will have beer, wine, and juice no need to bring anything. As it is the night before the big day we will try to make this an early night :)
 
 
-### Saturday Morning (Family & Out of Town)
+### Saturday Morning (July 28) (Family & Out of Town)
 
 To be Determined (after we consult a few folks and perhaps weather dependent)
 
 Some friends have offered to guide you on a hike (fairly flat) in Gatineau park. More info to come! If it looks like it will be a really hot day, then it will be an early morning hike, followed perhaps by a dip in a lake. If its not too hot, then we are thinking about organizing a drop-in pre-hike breakfast in Chelsea (at Nancy's) - simple pastries and coffee :) Then heading out for a hike at around 10:30. 
 
-### Sunday (July 29) afternoon - 12:30-4pm (Everyone Welcome!!)
+### Sunday afternoon (July 29) (Everyone Welcome!!)
 
+12:30ish -4pmish
 Our only regret about having the wedding at Wabano is the lack of outdoors time. So we have decided to put on our wedding outfits on Sunday afternoon and head to a lake. Please join us with your swimsuits, cameras and some food for a potluck picnic in the park! It will be low key - we are not coordinating food. We would love some photos of us in our outfits outside in the sun, so bring your camera/phone. If they work out great! If it rains, no problem :) We will bring Tibi and go to a lake you can walk to in about 25 mins (mostly flat). [Parking and lake marked on map here](https://drive.google.com/open?id=19bKJw5R4ZpiY2VlZo6IpHQVXZttV71Nu&usp=sharing) or see the bottom of this page.
 
 If folks are keen, there is usually fabulous music and a riverside patio on Sunday afternoons as of 4pm at the Blacksheep Inn in Wakefield, just a bit further north (also on map mentioned above, the one you can see at the bottom of this page.)
