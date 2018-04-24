@@ -18,6 +18,7 @@ These mostly relate to the Ottawa wedding, but we will keep adding info here as 
 - [What is a Quaker?](#what-is-a-quaker)
 - [What is a Quaker Wedding Certificate?](#what-is-a-quaker-wedding-certificate)
 - [What to wear?](#what-to-wear)
+- [What will the weather be like?](what-will-the-weather-be-like)
 - [Can I bring my kids or pets?](#can-i-bring-my-kids-or-pets)
 - [What about photos?](#what-about-photos)
 - [Do we bring gifts?](#do-we-bring-gifts)
@@ -51,6 +52,10 @@ At the end of each of our events we will be asking you to sign our Wedding Certi
 We are going to get dressed up. We want you to be comfortable and to feel great. Now might be the perfect time to pull out those sequins, or not, depending on you. We have often joked about fusing our names (well, this was only partly a joke for one of us - it seems like a cool idea to one of us.) In our case, this leaves us with the unfortunate choice of the rather posh Wolford or the somewhat less posh Giffsak. We think you can use these two names for outfit inspiration. Maybe you are more of a Giffsak and you want to wear those yellow shorts and the hawaiian shirt. Yay! We are excited to see it. Or maybe you want to wear your Wolford gown. Go for it.
 
 As we said, we will be a bit dressy. But the most important thing to us is that you are comfy. And ready to dance, if the inspiration hits you.
+
+## What will the weather be like?
+
+We're Canadian - we must talk about the weather! July average high is 26 and low of 15, it is usually pretty humid. One of the advantages of having the wedding at Wabano is that we do not have to worry about the weather. The space is big, there are lots of windows and there is air conditioning. In late July in Ottawa it can be super hot and humid, it could also pour with rain all day long, who knows what will happen. Because of the outdoor activities that we hope to do, we will be monitoring [the weather here,](https://weather.gc.ca/city/pages/on-118_metric_e.html) but not stressing too much about it. Just keep the heat in mind if you are packing for here.
 
 ## Can I bring my kids or pets?
 
