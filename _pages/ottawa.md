@@ -49,7 +49,7 @@ To be Determined (after we consult a few folks and perhaps weather dependent)
 
 Some friends have offered to guide you on a hike (fairly flat) in Gatineau park. More info to come! If it looks like it will be a really hot day, then it will be an early morning hike, followed perhaps by a dip in a lake. If its not too hot, then we are thinking about organizing a drop-in pre-hike breakfast in Chelsea (at Nancy's) - simple pastries and coffee :) Then heading out for a hike at around 10:30. 
 
-## Post Wedding Activity for all
+## Post-Wedding Activity for all
 
 ### Sunday afternoon (July 29) (Everyone Welcome!!)
 
