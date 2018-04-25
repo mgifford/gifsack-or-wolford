@@ -59,7 +59,7 @@ Our only regret about having the wedding at Wabano is the lack of outdoors time.
 
 If folks are keen, there is usually fabulous music and a riverside patio on Sunday afternoons as of 4pm at the Blacksheep Inn in Wakefield, just a bit further north (also on map mentioned above, the one you can see at the bottom of this page.)
 
-#### Map & Things to do in O-Town 
+## Map & Things to do in O-Town 
 
 For a fairly small town, there is a lot to do. We made a map of relevant or interesting [places in Ottawa](https://www.google.com/maps/d/viewer?mid=19bKJw5R4ZpiY2VlZo6IpHQVXZttV71Nu&ll=45.41890687301883%2C-75.68983909074706&z=14) (we've also pasted it in below.)
 
