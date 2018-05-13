@@ -12,6 +12,10 @@
 
 ## 6:20 - Moment of silence & thoughts from Friends, friends & family
 
-## 7:20 - Meeting ends with the rise of Elders and everyone shaking hands & greeting each other
+## 7:10 - Meeting ends with the rise of Elders and everyone shaking hands & greeting each other
 
-## 7:30 - 
+## 7:15 - Mike & Rebecca Sign the Certificate (both the legal & ceremonial documents)
+
+## 7:30 - Everyone Signs the Cerimonial Certificate (Family Photos)
+
+## 7:45 - 
