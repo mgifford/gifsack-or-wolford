@@ -21,7 +21,7 @@ Mike and Rebecca will declare vows to each other and exchange rings.
 
 ## 6:20 - Moment of silence & thoughts from Friends, friends & family
 
-Silence in Quaker meetings is appreciated. Please do not repeat messages that others have said. This is a time to share memories, experiences and good wishes. There will also be a period for roasts & toasts after the ceremony. 
+Silence in Quaker meetings is appreciated. Guests are encouarged to stand to say a few words or voice support for the couple (think: heartfelt toasts).  Please do not repeat messages that others have said. This is a time to share memories, personal experiences and good wishes. There will also be a period for roasts & toasts after the ceremony. 
 
 ## 7:10 - Meeting ends with the rise of Elders and everyone shaking hands & greeting each other
 
