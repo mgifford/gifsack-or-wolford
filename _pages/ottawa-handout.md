@@ -5,15 +5,15 @@
 ## 5:45 - People are seated in a circle 
 Please silence your phones. 
 
-We will have a professional photographer for the ceremony, we would prefer if you didn't take photos during the ceremony.
+We will have a professional photographer for the ceremony. Please don't take photos during the ceremony.
 
 ## 6:00 - Service begins with a greeting from an First Nations Elder
 
-We are being married in the Wabano Centre for Aboriginal Health, but we would like to acknowledge that the City of Ottawa is in the traditional, unceded territories of the Algonquin nation.
+We are being married in the Wabano Centre for Aboriginal Health. We would like to acknowledge that the Ottawa is in the traditional, unceded territories of the Algonquin nation.
 
 ## 6:05 - Quaker Introduction & Context by Caroline Balderston Parry
 
-Since traditionally Quakers have no clergy, there is no one person to “marry” us. We will declare our intentions before our community and everyone present will be a witness. 
+Since traditionally Quakers have no clergy, there is no one person to  “marry” us. We will declare our intentions before our community and everyone will be a witness.
 
 ## 6:10 - Exchange of Vows by Rebecca & Mike
 
