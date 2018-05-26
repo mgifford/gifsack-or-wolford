@@ -5,7 +5,7 @@
 ## 5:45 - People are seated in a circle 
 Please silence your phones. 
 
-We will have a professionaly photographer for the ceremony, we would prefer if you didn't take photos durring the ceremony. 
+We will have a professional photographer for the ceremony, we would prefer if you didn't take photos during the ceremony.
 
 ## 6:00 - Service begins with a greeting from an First Nations Elder
 
@@ -21,7 +21,7 @@ Mike and Rebecca will declare vows to each other and exchange rings.
 
 ## 6:20 - Moment of silence & thoughts from Friends, friends & family
 
-Silence in Quaker meetings is appreciated. Guests are encouarged to stand to say a few words or voice support for the couple (think: heartfelt toasts).  Please do not repeat messages that others have said. This is a time to share memories, personal experiences and good wishes. There will also be a period for roasts & toasts after the ceremony. 
+Silence in Quaker meetings is appreciated. Guests are encouraged to stand to say a few words or voice support for the couple (think: heartfelt toasts). Please do not repeat messages that others have said. This is a time to share memories, personal experiences and good wishes. There will also be a period for roasts & toasts after the ceremony.
 
 ## 7:10 - Meeting ends with the rise of Elders and everyone shaking hands & greeting each other
 
@@ -29,9 +29,9 @@ Silence in Quaker meetings is appreciated. Guests are encouarged to stand to say
 
 Please feel free to snap as many photos as you like. Please share them with us. If you put them on social media, please use the hashtag #RandMnews so we can find it. 
 
-## 7:30 - Everyone Signs the Cerimonial Certificate 
+## 7:30 - Everyone Signs the Ceremonial Certificate 
 
-Deserts & drinks will be served
+Desserts & drinks will be served
 
 ## 7:45 - Family Photos
 
