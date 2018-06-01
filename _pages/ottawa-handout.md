@@ -15,7 +15,7 @@ Caroline will be our guide for the next hour or so. Quakers have no clergy, this
 ## 6:10 - Exchange of vows by Rebecca and Mike
 Mike and Rebecca will declare vows to each other and exchange rings.
 
-## 6:30 - Moment of silence, followed by silence and thoughts from Friends, friends & family
+## 6:30 - Moment of silence, followed by silence and reflections from you
 Silence in Quaker meetings is appreciated. After an initial moment of silence, guests are encouraged to stand to say a few words or voice support or advice for the couple. Please make sure to leave some silence after someone else speaks before standing to speak yourself. Please do not repeat messages that others have said. Keep in mind that there is time for roasts & toasts after the ceremony.
 
 ## 7:15 - Meeting ends with the rise of Elders. Group photo and then Mike & Rebecca Sign the Certificate
