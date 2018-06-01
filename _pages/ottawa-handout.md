@@ -19,7 +19,7 @@ Mike and Rebecca will declare vows to each other and exchange rings.
 Silence in Quaker meetings is appreciated. After an initial moment of silence, guests are encouraged to stand to say a few words or voice support or advice for the couple. Please make sure to leave some silence after someone else speaks before standing to speak yourself. Please do not repeat messages that others have said. Keep in mind that there is time for roasts & toasts after the ceremony.
 
 ## 7:15 - Ceremony ends with the rise of Elders. 
-we will all rise, following the lead of the elders. We will ask everyone to move into the middle of the room and look up for a group photo - Susanne will be on the balconey ready to capture the moment. Mike and Rebecca will then sign the Quaker wedding certificate. 
+We will all rise, following the lead of the elders. We will ask everyone to move into the middle of the room and look up for a group photo - Susanne will be on the balconey ready to capture the moment. Mike and Rebecca will then sign the Quaker wedding certificate. 
 
 ## 7:20 - Everyone Signs the Ceremonial Certificate 
 Everyone needs to sign the certificate please - all guests of all ages. From now on, please feel free to snap as many photos as you like. Please share them with us. If you put them on social media, please use the hashtag #RandMnews so we can find it. Desserts and drinks will be served, a cashbar is also open. Family members will sneak away for about 20 minutes at this time for a few group photos. If you brought a message for Mike and Rebecca or wish to write one down, look for the table at the back of the room with the paper, pens and box.
