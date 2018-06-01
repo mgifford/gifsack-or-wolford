@@ -9,16 +9,16 @@ Two friends will be taking photos during the ceremony, please set your phones an
 ## 6:00 - Service will begin with a welcome from a First Nations Elder
 It is important to us to acknowledge that Ottawa is in the traditional, unceded territories of the Algonquin nation.
 
-## 6:05 - Quaker Introduction by Caroline Balderston Parry
+## 6:05 - Quaker introduction by Caroline Balderston Parry
 Caroline will be our guide for the next hour or so. Quakers have no clergy, this means there is no one person to “marry” us. We will declare our intentions before our community and everyone will be a witness. This will be a new experience for many of us, Caroline will help guide us through it.
 
-## 6:10 - Exchange of Vows by Rebecca & Mike
+## 6:10 - Exchange of vows by Rebecca and Mike
 Mike and Rebecca will declare vows to each other and exchange rings.
 
-## 6:20 - Moment of silence, followed by silence and thoughts from Friends, friends & family
+## 6:30 - Moment of silence, followed by silence and thoughts from Friends, friends & family
 Silence in Quaker meetings is appreciated. After an initial moment of silence, guests are encouraged to stand to say a few words or voice support or advice for the couple. Please make sure to leave some silence after someone else speaks before standing to speak yourself. Please do not repeat messages that others have said. Keep in mind that there is time for roasts & toasts after the ceremony.
 
-## 7:10 - Meeting ends with the rise of Elders. Group photo and then Mike & Rebecca Sign the Certificate
+## 7:15 - Meeting ends with the rise of Elders. Group photo and then Mike & Rebecca Sign the Certificate
 We will ask everyone to move into the middle of the room and look up for a group photo - Susanne will be on the balconey ready to capture the moment. Mike and Rebecca will then sign the Quaker wedding certificate. 
 
 ## 7:20 - Everyone Signs the Ceremonial Certificate 
@@ -30,6 +30,6 @@ This is your opportunity to tell hilarious or embarassing or tear jerking storie
 ## 9:00 - First Dance
 Mike & Rebecca!
 
-## 11:30 - Snax
+## 11:30 - Midnight-ish Snacks
 
 ## 1:30am - Last dance
