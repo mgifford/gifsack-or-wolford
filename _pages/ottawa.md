@@ -55,7 +55,7 @@ Some friends have offered to guide you on a hike (fairly flat) in Gatineau park.
 
 ### Sunday afternoon (July 29) (Everyone Welcome!!)
 
-12:30ish -4pmish
+**12:30**ish - **4pm**ish
 
 Our only regret about having the wedding at Wabano is the lack of outdoors time. So we have decided to put on our wedding outfits on Sunday afternoon and head to a lake. Please join us with your swimsuits, cameras and some food for a potluck picnic in the park! It will be low key - we are not coordinating food. We would love some photos of us in our outfits outside in the sun, so bring your camera/phone. If they work out great! If it rains, no problem :) We will bring Tibi and go to a lake you can walk to in about 25 mins (mostly flat). [Parking and lake marked on map here](https://drive.google.com/open?id=19bKJw5R4ZpiY2VlZo6IpHQVXZttV71Nu&usp=sharing) or see the bottom of this page.
 
