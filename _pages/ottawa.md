@@ -17,11 +17,13 @@ The main event is happening on Saturday evening, but we wanted to maximize the w
 - [Map & Things to do in O-town](#map--things-to-do-in-o-town)
 
 
-<p id="Wabano"><em>5:45pm July 28, 2018 (after dinner)<br /><a href="http://wabano.com/">Wabano Centre for Aboriginal Health</a>, <a href="https://www.google.com/maps/place/299+Montreal+Rd,+Vanier,+ON+K1L+6B8/@45.4373487,-75.6611751,17z/data=!3m1!4b1!4m5!3m4!1s0x4cce0541d22407df:0xa38d13cfa9c2bc3e!8m2!3d45.4373487!4d-75.6589864">299 Montreal Rd, Vanier, Ontario</a></em></p>
+<p id="Wabano"><strong>5:30pm July 28, 2018</strong> (after dinner)<br /><a href="http://wabano.com/">Wabano Centre for Aboriginal Health</a>, <a href="https://www.google.com/maps/place/299+Montreal+Rd,+Vanier,+ON+K1L+6B8/@45.4373487,-75.6611751,17z/data=!3m1!4b1!4m5!3m4!1s0x4cce0541d22407df:0xa38d13cfa9c2bc3e!8m2!3d45.4373487!4d-75.6589864">299 Montreal Rd, Vanier, Ontario</a></p>
 
 ## The Wedding
   
-The ceremony will begin at 6pm. It will be a Quaker ceremony - don't panic! We will give you lots of info and guidance on the day. If you are curious, please see What is a Quaker Wedding Ceremony? in the [FAQ section](/f9f742e1f653a74c4cd78d7ea283b5556539b96b/faq/). 
+The ceremony will begin at **6:00pm**. 
+
+It will be a Quaker ceremony - don't panic! We will give you lots of info and guidance on the day. If you are curious, please see What is a Quaker Wedding Ceremony? in the [FAQ section](/f9f742e1f653a74c4cd78d7ea283b5556539b96b/faq/). 
 
 The ceremony will last for about one hour. We will then all sign our wedding certificate and this will be closely followed by some toasts. We will then have some wine, desert and cheese - yum! There will be music  to boogie to, a photo booth to be goofy in and friends to chat with. We will have some prosecco, wine and juice - and a cash bar if you fancy something a bit different.
 
