@@ -52,11 +52,11 @@ We would love to have you over for dinner at our home on Friday night (July 27).
 
 Our only regret about having the wedding at Wabano is the lack of outdoors time. So we have decided to put on our wedding outfits on Sunday afternoon and head to Dows lake. Please join us with your cameras and some food for a potluck picnic in the park! It will be low key - we are not coordinating food. We would love some photos outside in the sun, so bring your camera/phone. We might even wear our outfits. 
 
-The weather people are predicting rain so we need a backup.  If it rains we'll just have it at our house (581 Maclaren St.).  If you aren't sure text Mike - 613 327-8537.
+The weather people are predicting rain so we need a backup.  If it rains we'll just have it at our house [581 Maclaren St.](https://www.google.com/maps/place/581+MacLaren+St,+Ottawa,+ON+K1R+5K8).  If you aren't sure text Mike - 613 327-8537.
 
 We really wanted to make this a dog friendly day.
 
-[Parking and lake marked on map here](https://drive.google.com/open?id=19bKJw5R4ZpiY2VlZo6IpHQVXZttV71Nu&usp=sharing) or see the bottom of this page.
+[Parking marked on map here](https://www.google.ca/maps/place/Dominion+Arboretum/@45.3909884,-75.7039066,15z) or see the bottom of this page. We will hopefully be under a tree. 
 
 ## Map & Things to do in O-Town 
 
