@@ -52,6 +52,8 @@ We would love to have you over for dinner at our home on Friday night (July 27).
 
 Our only regret about having the wedding at Wabano is the lack of outdoors time. So we have decided to put on our wedding outfits on Sunday afternoon and head to Dows lake. Please join us with your cameras and some food for a potluck picnic in the park! It will be low key - we are not coordinating food. We would love some photos outside in the sun, so bring your camera/phone. We might even wear our outfits. 
 
+We will be near the [willows just north of the bridge](https://goo.gl/maps/FRYu5AsRkC32) close to the canal by Carleton University. 
+
 The weather people are predicting rain so we need a backup.  If it rains we'll just have it at our house [581 Maclaren St.](https://www.google.com/maps/place/581+MacLaren+St,+Ottawa,+ON+K1R+5K8).  If you aren't sure text Mike - 613 327-8537.
 
 We really wanted to make this a dog friendly day.
