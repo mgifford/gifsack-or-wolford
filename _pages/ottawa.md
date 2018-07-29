@@ -54,7 +54,7 @@ Our only regret about having the wedding at Wabano is the lack of outdoors time.
 
 We will be near the [willows just north of the bridge](https://goo.gl/maps/FRYu5AsRkC32) close to the canal by Carleton University. 
 
-The weather people are predicting rain so we need a backup.  If it rains we'll just have it at our house [581 Maclaren St.](https://www.google.com/maps/place/581+MacLaren+St,+Ottawa,+ON+K1R+5K8).  If you aren't sure text Mike - 613 327-8537.
+The weather people are predicting rain so we need a backup. There is a low chance of rain so we are going to the park. If you aren't sure text Mike - 613 327-8537.
 
 We really wanted to make this a dog friendly day.
 
