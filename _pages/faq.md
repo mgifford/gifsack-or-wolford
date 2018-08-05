@@ -56,10 +56,10 @@ As we said, we will be a bit dressy. But the most important thing to us is that 
 ## What will the weather be like?
 We're Canadian - we must talk about the weather! 
 
-#Vancouver
+**Vancouver**
 Temperature averages anywhere from a low of 12 to a high of 23,  although this summer has been a scorcher as we all know. If it pours with rain we will be indoors - if it looks chancey, maybe bring an umbrella with you. If it looks hot, bring a swimsuit and towel.
 
-#Ottawa
+**Ottawa**
 July average high is 26 and low of 15, it is usually pretty humid. One of the advantages of having the wedding at Wabano is that we do not have to worry about the weather. The space is big, there are lots of windows and there is air conditioning. In late July in Ottawa it can be super hot and humid, it could also pour with rain all day long, who knows what will happen. Because of the outdoor activities that we hope to do, we will be monitoring [the weather here,](https://weather.gc.ca/city/pages/on-118_metric_e.html) but not stressing too much about it. Just keep the heat in mind if you are packing for here.
 
 ## Can I bring my kids or pets?
@@ -71,10 +71,10 @@ If your kids know us and they want to celebrate with us, then we want to celebra
 ## What about photos?
 We will put photos up on flickr, if you have some photos to share we would love it if you added them to this [group too.](https://www.flickr.com/groups/randmnews/) If you don't want to use flickr you can send us the photos, or post them to this [Facebook group.](https://www.facebook.com/openconcept/media_set?set=a.10151068696649959.508164958&type=3&uploaded=1)
 
-#Vancouver
+**Vancouver**
 Please bring your camera! We would love to see your pics. 
 
-#Ottawa
+**Ottawa**
 For the Ottawa ceremony, we have hired our talented and lovely friend Susanne to take photos throughout the evening and she will also have a fun photo booth set up. We ask that you set your cameras and phones aside for the ceremony itself, and let her be responsible for capturing it.
 
 Not everyone likes having their photo taken. Some don't like to have their photos put up on the internet. There will be a lot of photos at this event, but do let us know and we'll try to keep you out of them.
