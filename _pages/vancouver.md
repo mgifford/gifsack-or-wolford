@@ -37,7 +37,7 @@ There is no public transport to the house, or nearby. There is somewhat limited 
 ### The Next Day
 
 <p>
-Sunday, September 2, 10am 
+Sunday, September 2, 10:30am 
 <br />
 <a href="https://www.seatoskygondola.com/visit/how-get-here">36800 BC-99, Squamish BC</a>
 </p>  
