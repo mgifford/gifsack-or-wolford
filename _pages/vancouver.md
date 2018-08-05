@@ -30,7 +30,7 @@ What to wear? Whatever feels celebratory and works for you outside (if it is rai
 Just a heads up: Hannah the doodle and Tibi the whoodle will be there. And probably other **dogs** from the hood will drop by.
 
 **A note on Transport/Parking/Mobility issues**
-The house is at the bottom of a very steep driveway. You are welcome to drive down and drop people off at the front door and then go back up to the street to find parking. The driveway will not be easy walking for some people. If you have mobility concerns, please talk with us (we can probably sort out access for you via a neighbour.)
+The house is at the bottom of a very steep driveway. You are welcome to drive down and drop people off at the front door and then go back up to the street to find parking. The driveway will not be easy walking for some people. If you have mobility concerns, please talk with us.
 
 There is no public transport to the house, or nearby. There is somewhat limited parking (although the neighbours are all being lovely about this). If it is possible for you, please car pool!
 
