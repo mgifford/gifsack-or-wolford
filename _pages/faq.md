@@ -51,22 +51,30 @@ At the end of each of our events we will be asking you to sign our Wedding Certi
 
 We are going to get dressed up. We want you to be comfortable and to feel great. Now might be the perfect time to pull out those sequins, or not, depending on you. We have often joked about fusing our names (well, this was only partly a joke for one of us - it seems like a cool idea to one of us.) In our case, this leaves us with the unfortunate choice of the rather posh Wolford or the somewhat less posh Giffsak. We think you can use these two names for outfit inspiration. Maybe you are more of a Giffsak and you want to wear those yellow shorts and the hawaiian shirt. Yay! We are excited to see it. Or maybe you want to wear your Wolford gown. Go for it.
 
-As we said, we will be a bit dressy. But the most important thing to us is that you are comfy. And ready to dance, if the inspiration hits you. It is likley to be a hot and humid day, but there will be air conditioning.
+As we said, we will be a bit dressy. But the most important thing to us is that you are comfy. And ready to dance, if the inspiration hits you. In Ottawa it is likley to be a hot and humid day, but there will be air conditioning.
 
 ## What will the weather be like?
+We're Canadian - we must talk about the weather! 
 
-We're Canadian - we must talk about the weather! July average high is 26 and low of 15, it is usually pretty humid. One of the advantages of having the wedding at Wabano is that we do not have to worry about the weather. The space is big, there are lots of windows and there is air conditioning. In late July in Ottawa it can be super hot and humid, it could also pour with rain all day long, who knows what will happen. Because of the outdoor activities that we hope to do, we will be monitoring [the weather here,](https://weather.gc.ca/city/pages/on-118_metric_e.html) but not stressing too much about it. Just keep the heat in mind if you are packing for here.
+#Vancouver
+Temperature averages anywhere from a low of 12 to a high of 23,  although this summer has been a scorcher as we all know. If it pours with rain we will be indoors - if it looks chancey, maybe bring an umbrella with you. If it looks hot, bring a swimsuit and towel.
+
+#Ottawa
+July average high is 26 and low of 15, it is usually pretty humid. One of the advantages of having the wedding at Wabano is that we do not have to worry about the weather. The space is big, there are lots of windows and there is air conditioning. In late July in Ottawa it can be super hot and humid, it could also pour with rain all day long, who knows what will happen. Because of the outdoor activities that we hope to do, we will be monitoring [the weather here,](https://weather.gc.ca/city/pages/on-118_metric_e.html) but not stressing too much about it. Just keep the heat in mind if you are packing for here.
 
 ## Can I bring my kids or pets?
 
-Kids yes, pets no. We love pets, but Wabano doesn't. 
+Kids yes, pets no. We love pets, but Wabano (in Ottawa) doesn't and there are already a number of dogs in the hood at Joost and Jane's. 
 
-If your kids know us and they want to celebrate with us, then we want to celebrate with them! Also of course if you are traveling from out of town and have your kids with you, feel free to bring them too. Keep in mind this is an after-dinner evening affair... Please get in touch with us about child care.  We will have a kid-friendly space, some childcare volunteers and some fun activities. We just need to be sure of the numbers.
+If your kids know us and they want to celebrate with us, then we want to celebrate with them! Also of course if you are traveling from out of town and have your kids with you, feel free to bring them too. For Ottawa, keep in mind this is an after-dinner evening affair... 
 
 ## What about photos?
-
 We will put photos up on flickr, if you have some photos to share we would love it if you added them to this [group too.](https://www.flickr.com/groups/randmnews/) If you don't want to use flickr you can send us the photos, or post them to this [Facebook group.](https://www.facebook.com/openconcept/media_set?set=a.10151068696649959.508164958&type=3&uploaded=1)
 
+#Vancouver
+Please bring your camera! We would love to see your pics. 
+
+#Ottawa
 For the Ottawa ceremony, we have hired our talented and lovely friend Susanne to take photos throughout the evening and she will also have a fun photo booth set up. We ask that you set your cameras and phones aside for the ceremony itself, and let her be responsible for capturing it.
 
 Not everyone likes having their photo taken. Some don't like to have their photos put up on the internet. There will be a lot of photos at this event, but do let us know and we'll try to keep you out of them.
@@ -79,7 +87,7 @@ Our smart friend Andrew has given us a fun idea (which we have tweaked a little.
 
 ## What if we want to make a donation?
 
-**There is no need to make a donation.**  We understand that for some people, no gifts is uncomfortable and they want to do something.  If you are such a person, you could consider making a donation in our name to an organization like Inter Pares, Ecology Ottawa, or, for those in the US, the Electronic Frontier Foundation.
+**There is no need to make a donation.**  We understand that for some people, no gifts is uncomfortable and they want to do something.  If you are such a person, you could consider making a donation in our name to an organization like Inter Pares, Ecology Ottawa, or, for those in the US, the Electronic Frontier Foundation or Amnesty International.
 
 ## What is the hashtag?
 
