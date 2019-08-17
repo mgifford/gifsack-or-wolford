@@ -19,7 +19,6 @@ We will be having a drink oceanside on September 1st!
 <br />
 2-6pm
 <br />
-<a href="https://www.google.com/maps/place/8815+Lawrence+Way,+West+Vancouver,+BC+V7W+2T7/data=!4m2!3m1!1s0x54866940036f6e11:0x3091d0c4ef57a0ba?sa=X&ved=0ahUKEwjVsM7czszaAhWFw4MKHalGBzoQ8gEIKDAA">8815 Lawrence Way, West Vancouver</a> (There will be signs for parking instructions)
 </p>
 
 For us, this is a chance to celebrate with folks who aren’t traveling to Ottawa for the wedding - and to celebrate again with some of you who are coming to both! Rebecca’s dad and step-mum – Joost and Jane - will be hosting at their beautiful home. 
